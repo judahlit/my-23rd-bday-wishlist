@@ -44,12 +44,12 @@ They should also be soft and good quality. Materials matter, and unfortunately b
 
 #### **MATERIALS TO AVOID FOR YOUR NEEDS:**
 
-❌ **Silk** - Too expensive (€100+), high maintenance
-❌ **Cashmere** - Too expensive (€150+), too warm for year-round
-❌ **Viscose/Rayon** - Too fragile, short lifespan (1-2 years)
-❌ **Pure Bamboo Viscose** - Less durable than modal/tencel, chemical concerns
-❌ **Fleece** - Not breathable, too warm, not suitable for pajamas unless winter-only
-❌ **Polyester** - Not breathable, traps heat and moisture, can feel clammy, irritates sensitive skin, retains odors, not recommended for sleepwear (synthetic feel, no temperature regulation)
+- :x: **Silk** - Too expensive (€100+), high maintenance
+- :x: **Cashmere** - Too expensive (€150+), too warm for year-round
+- :x: **Viscose/Rayon** - Too fragile, short lifespan (1-2 years)
+- :x: **Pure Bamboo Viscose** - Less durable than modal/tencel, chemical concerns
+- :x: **Fleece** - Not breathable, too warm, not suitable for pajamas unless winter-only
+- :x: **Polyester** - Not breathable, traps heat and moisture, can feel clammy, irritates sensitive skin, retains odors, not recommended for sleepwear (synthetic feel, no temperature regulation)
 
 #### **Bottom Line:**
 
