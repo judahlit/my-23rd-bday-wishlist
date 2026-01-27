@@ -92,4 +92,4 @@ My idea was to just put tea from a teapot like this into my own thermal bottle, 
 
 ## **Gym Resistance Bands**
 
-I want [this one](https://www.amazon.nl/-/en/Flintronic-Resistance-Different-Exercise-Strengthening/dp/B0D87MNHY2). This one would be the easiest for me to buy myself.
+I want [this one](https://www.amazon.nl/-/en/Flintronic-Resistance-Different-Exercise-Strengthening/dp/B0D87MNHY2). This item would be the easiest for me to buy myself.
