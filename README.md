@@ -17,7 +17,7 @@ I would like pyjamas with the following criteria:
 
 ### Material Criteria
 
-They should also be soft and good quality. Materials matter, and unfortunately buying a good pyjama like this isn't cheap. I did a bit of research with Claude AI, and have verified that the findings are accurate. Here they are:
+They should also be soft and good quality. Materials matter, and unfortunately buying a good pyjama like this isn't cheap. I did a bit of research with Gemini and Claude AI, and have verified that the findings are accurate. Here they are:
 
 ---
 
