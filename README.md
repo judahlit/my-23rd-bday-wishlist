@@ -92,4 +92,4 @@ My idea was to just put tea from a teapot like this into my own thermal bottle, 
 
 ## **Gym Resistance Bands**
 
-I want [this one](https://www.amazon.nl/-/en/Flintronic-Resistance-Different-Exercise-Strengthening/dp/B0D87MNHY2). This item would be the easiest for me to buy myself.
+I want long, looped resistance bands for strength training (preferably at different strengths). Most bands of this kind that are made with rubber have some materials in it that can be toxic, so I'd much prefer it if these bands were made of fabric, like [these](https://www.amazon.nl/s?k=long+fabric+loop+bands&crid=1FKWZMFOSI60V&sprefix=long+fabric+loop+bands%2Caps%2C136&ref=nb_sb_noss). [This one](https://www.amazon.nl/-/en/Flintronic-Resistance-Different-Exercise-Strengthening/dp/B0D87MNHY2) would have been good if it was made out of this fabric. How unfortunate.
