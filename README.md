@@ -89,7 +89,3 @@ Fresh tea leaves are healthier and taste better. I believe they can be bought fo
 It doesn't have to be this specific tea pot, but I thought this was a nice candidate. It doesn't insulate heat, but most teapots like this do not insulate tea well. The ones that claim to do so can only confidently say that the tea within them stays warm for only 1 hour.
 
 My idea was to just put tea from a teapot like this into my own thermal bottle, but mom and Jacco thought it would be nice to buy a certain type of cloth that keeps the tea warm. Sounds good.
-
-## **Gym Resistance Bands**
-
-I want long, looped resistance bands for strength training (preferably at different strengths). Most bands of this kind that are made with rubber have some materials in it that can be toxic, so I'd much prefer it if these bands were made of fabric, like [these](https://www.amazon.nl/s?k=long+fabric+loop+bands&crid=1FKWZMFOSI60V&sprefix=long+fabric+loop+bands%2Caps%2C136&ref=nb_sb_noss). [This one](https://www.amazon.nl/-/en/Flintronic-Resistance-Different-Exercise-Strengthening/dp/B0D87MNHY2) would have been good if it was made out of this fabric. How unfortunate.
