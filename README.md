@@ -88,4 +88,4 @@ Fresh tea leaves are healthier and taste better. I believe they can be bought fo
 
 It doesn't have to be this specific tea pot, but I thought this was a nice candidate. It doesn't insulate heat, but most teapots like this do not insulate tea well. The ones that claim to do so can only confidently say that the tea within them stays warm for only 1 hour.
 
-My idea was to just put tea from a teapot like this into my own thermal bottle, but mom and Jacco thought it would be nice to buy a certain type of cloth that keeps the tea warm. Sounds good.
+My idea was to just put tea from a teapot like this into my own thermal bottle, but people thought it would be nice to buy a certain type of cloth that keeps the tea warm. Sounds good.
